@@ -2,12 +2,6 @@
 
 ![aa gif](https://github.com/user-attachments/assets/5c78bce9-78f8-4155-8f08-9a150cf40c34)
 
-
-
-
-
-
-
 In my restless dreams... I see that town.
 <img width="859" height="403" alt="w" src="https://github.com/user-attachments/assets/f4096d02-05fe-4f91-8eef-64ca3f8a956c" />
 
