@@ -1,14 +1,6 @@
 <img width="859" height="403" alt="w" src="https://github.com/user-attachments/assets/37590e8d-6470-457f-809a-1dc1cbf5b14d" />
 
-![aa gif](https://github.com/user-attachments/assets/85d79da9-3a75-4c85-873f-a4c83929c2cd)
-
-
-
-
-
-
-
-
+![aa gif](https://github.com/user-attachments/assets/be74971b-a19f-41d3-80a5-5ea4c674243c)
 
 
 <img width="859" height="403" alt="w" src="https://github.com/user-attachments/assets/f4096d02-05fe-4f91-8eef-64ca3f8a956c" />
